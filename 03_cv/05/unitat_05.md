@@ -1,0 +1,108 @@
+% Cultura Valenciana
+% Unitat 5: El segle XIX
+% Llagostina Juny, 2017
+
+# La Guerra de la Independència i l’origen del liberalisme #
+
+1. La Guerra de la Independència fou un conflicte bèl·lic entre Espanya i el Primer Imperi Francés que s’**inicià el 1808** amb l’entrada de les tropes napoleòniques, i que **conclogué el 1814**, amb el retorn de Ferran VII d’Espanya al poder.
+
+2. Per què va ser provocada la guerra?
+
+Va ser provocat perquè Napoleó volia d’instal·lar en el tron espanyol el seu germà Josep Bonaparte.
+
+3. El primer ministre espanyol **Manuel Godoy** va deixar passar les tropes imperials franceses pel pterritori espanyol per a envair Portugal.
+
+4. Les tropes napoleòniques van anar prenent posicions en importants ciutats i places fortes. A què monarca volien derrocar?
+
+A Carles IV.
+
+A qui li van donar la corona d’Espanya Curles IV i el seu fill Ferran VII?
+
+Al germà de l’emperador, Josep Bonaparte.
+
+5. El 2 de maig de 1808, a Madrid, què va passar?
+
+El poble es revoltà contra els francesos.
+
+6. Quin general ordenà disparar contra la gent?
+
+El general Murat va ordenar disparar contra la multitud.
+
+7. Qui i com ens ho han contat?
+
+Els madrilenys iniciaren així un alçament popular expontani. Goya va pintar el quadre “La càrrega dels mamelucs”.
+
+8. Què va passar a València?
+
+El general francés Moncey va derrotar a les tropes valencianes a Bunyol i va entrar a València.
+
+9. Com es conèix l’assemblea constituent inaugurada a Cadis durant la Guerra de la Independència?
+
+**Les Corts de Cadis**.
+
+10. Què van redactar?
+
+La Constitució de 1812, la Pepa.
+
+11. Nomena alguna característica de **La Pepa**:
+
+- És de caràcter liberal
+- Sobirania nacional
+- Separació de poders
+- Sufragi universal
+- Llibertat d’impremta
+- Dret a la propietat
+
+12. Qui va ser la representació valenciana en la redacció de la Constitutció?
+
+En represntació valenciana van participar en la redacció 23 diputats.
+
+Què van reclamar, junts als diputats aragonesos, catalans i mallorquins?
+
+Els furs abolits per Felip V el 1714.
+
+13. Qui va anul·lar la Constitució de 1812?
+
+El rei Ferran VII.
+
+Quan es van crear les províncies i es van reestructurar els ajuntaments?
+
+Després de la mort de Ferran VII, el 1833.
+
+14. Què és el bari dels Velluters de València?
+
+És el barri dels artesans, ja que rebien el nom de velluters.
+
+I la Llotja de la Seda?
+
+Fins al moment s’havia anomenat la Llotja dels Mercaders, era un lloc per a les transaccions comercials.
+
+15. Nomena algunes de les transformacions que es van donar al segle XIX a València:
+
+La ciutat comença el desenvolupament industrial:
+
+- milloren les infraestructures urbanes (ports, carreteres…);
+- la ciutat creix, s’enderroquen les muralles;
+- s’introduix l’aigua potable, el gas o l’electricitat;
+- comencen les lluïtes socials, a causa del desenvolupament econòmic.
+
+16. Què llocs van unir el primer tren en terres valencianes?
+
+València amb el Grau i el tram València a Xàtiva.
+
+17. Completa els pobles on tenien lloc:
+
+- Indústria tèxtil: Alcoi, Ontinyent i Bocairent.
+- Indústria de la fusta: 
+- Indústria del calcer: la comarca del Vinalopó, Elda, Petrer.
+- Indústria del ferro: Sagunt
+- Indústria de la ceràmica: 
+
+18. Què paper va jugar la restauració dels Jocs Florals? 
+
+Els Jocs Florals eren competicions literàries de clar regust tradicional, amb el temps es va convertir en una activitat més conservadora i menys reivindicativa des d’un punt de vista polític.
+l
+Què poetes van ser representants de la Renaixença literària a València?
+
+- Teodor Llorente
+- Constantí Llombart
