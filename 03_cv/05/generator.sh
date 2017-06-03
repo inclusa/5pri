@@ -1,0 +1,5 @@
+#!/bin/bash
+
+# pandoc --template mytemplate.tex --toc -V fontsize=12pt -o output.pdf input1.md input2.md 
+
+pandoc --template template_no_toc.tex --toc -V fontsize=12pt -o tablet_v.pdf 05.md
